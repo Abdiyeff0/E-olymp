@@ -1,1 +1,1 @@
-# E-olymp assignments
+# E-olymp Assignments
